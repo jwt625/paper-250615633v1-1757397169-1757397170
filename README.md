@@ -1,2 +1,0 @@
-# paper-250615633v1-1757397169-1757397170
-Academic paper website: 2506.15633V1
